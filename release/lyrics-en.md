@@ -2,13 +2,13 @@
 
 ## [Spoken Intro]
 
-Rise from the grip of night,  
+Rise from the bondage of night,  
 Break the spell of deep darkness.
 
 This is the end of the long night,  
 The dawn of the homeland begins.
 
-Burn a feather of the Simorgh,  
+Ignite the feather of the Simorgh,  
 Uproot suffering from its very core.
 
 Pure light rises behind the mountain,  
@@ -19,7 +19,7 @@ In the blood-red dawn of the homeland.
 ## [Chorus / Song]
 
 My land… my home…  
-My house… O weary soil — my homeland…
+My home… O weary soil — my homeland…
 
 My nest… my soul… my roots… my mother…
 
@@ -65,13 +65,13 @@ My Iran.
 
 ## [Spoken Outro / Repeat]
 
-Rise from the grip of night,  
+Rise from the bondage of night,  
 Break the spell of deep darkness.
 
 This is the end of the long night,  
 The dawn of the homeland begins.
 
-Burn a feather of the Simorgh,  
+Ignite the feather of the Simorgh,  
 Uproot suffering from its very core.
 
 Pure light rises behind the mountain,  
