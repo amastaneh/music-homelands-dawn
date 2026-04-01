@@ -31,16 +31,16 @@ My Iran.
 
 ## [Rap]
 
-My nest… my soul… my roots… my mother… listen:
+My nest… my soul… my roots… my mother…
 
 Our bones are crushed!  
 Our fathers’ moans!  
 Our youths’ screams!  
-The lump in every throat — it chokes!  
+The lump in every throat!  
 The rubble of our grief!  
 The darkness of our world!  
 The tears that fill our nights!  
-The dead — out in the streets!
+The dead - out in the streets!
 
 ---
 
